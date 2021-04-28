@@ -1,1 +1,1 @@
-# Questions-about-the-theory.
+# Questions-about-the-theory
